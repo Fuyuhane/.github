@@ -22,7 +22,7 @@ Complexity rests beneath the surface,
 like roots beneath snow.
 
 > We fire one kiln at a time.
-The others rest, complete, breathing •
+The others rest, complete, breathing;
 a shelf of finished works waiting for their season.
 
 > We believe in quiet design,
@@ -31,7 +31,7 @@ in beauty that does not ask to be noticed.
 
 > Our software speaks softly,
 moves effortlessly,
-and remains •
+and remains;
 like a flower that blooms in cold air.
 
 > 冬羽 • The winter garden where vessels grow.
